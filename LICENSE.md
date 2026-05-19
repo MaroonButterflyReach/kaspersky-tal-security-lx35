@@ -1,4 +1,4 @@
-# 
+# new Bitdefender Total Security para PC scripts é o melhor Bitdefender Total Security para PC scripts com integracao com VPN e protecao em tempo real. Seguro, confiável e otimizado
 
 
 
